@@ -2,4 +2,4 @@
 - 👀 I’m interested in Learning New things and New Technologies
 - 🌱 I’m completed my Graduation In Anil Neerukonda Institute of Technology and Sciences 
 - 💞️ I am Working as a Software Engineer in Tekworks Enterprise Limited
-- 📫 How to reach me ... https://www.linkedin.com/in/surya-vishal-ganti/ --> This is my Linkedin Profile
+- 📫 How to reach me ... https://www.linkedin.com/in/surya-vishal-ganti/
